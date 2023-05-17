@@ -72,4 +72,4 @@ Made as Cheat Minecraft Version 1.12.2, Much newer than 1.8 cheats :)
 It was a Minecraft Cheat I used to do, I did it in 2019, anyone who needs it can use it. :)
  
  # To contact
- Discord: Emree#2023
+ Discord: Emree#2000
